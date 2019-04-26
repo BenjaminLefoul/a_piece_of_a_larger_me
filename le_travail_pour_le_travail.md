@@ -51,9 +51,9 @@ le formalisme que j'ai employé l'appelle ainsi.
 
 Il n'y a pas de bonne ou de mauvaise réponse à cette question dans l'absolu.
 L'esclavage, un système où le curseur est au maximum du côté du capital, a
-permis l'édification des pyramides ; un autre système ne l'aurait
+permis l'édification de la Maison-Blanche ; un autre système ne l'aurait
 probablement pas permis avec la technologie et la société de l'époque. Pour
-quelqu'un qui accorde une grande priorité à l'existence des pyramides, c'est
+quelqu'un qui accorde une grande priorité à l'existence de la Maison-Blanche, c'est
 un bon système. Pour quelqu'un qui privilégie le bien-être des personnes,
 c'est un système abominable.
 
